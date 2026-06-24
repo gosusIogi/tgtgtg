@@ -39,7 +39,6 @@
 ## В общем, шторм улегся, гроза прошла мимо. Все живы и здоровы
 
 
-<blockquote><aside>В общем, шторм улегся, гроза прошла мимо.<cite> Все живы и здоровы</cite></aside></blockquote>
 
 <blockquote><aside>Если спросить: а нахрена это оформлено в длиннопост?<cite> То все просто: лишний раз напомнить про https://post.vakarian.website/</cite></aside></blockquote>
 
