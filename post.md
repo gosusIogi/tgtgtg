@@ -20,7 +20,7 @@
 
 
 
-<video src="https://github.com/user-attachments/assets/dc5c632c-115b-4fb8-89f4-34e78d14e410" />
+<video src="https://github.com/user-attachments/assets/dc5c632c-115b-4fb8-89f4-34e78d14e410"></video>
 
 
 ------------
@@ -32,17 +32,15 @@
 *Тогда я тоже начал слегка нервничать*. Но, подо мной более 100м, спускаться долго.
 
 
+<video src="https://github.com/user-attachments/assets/7ed16e8e-f605-4a0d-a912-ef99a4c8b6a1"></video>
+<video src="https://github.com/user-attachments/assets/9972d6df-6045-4701-aac2-969e32cd74f2"></video>
 
 
+## В общем, шторм улегся, гроза прошла мимо. Все живы и здоровы
 
 
+<blockquote><aside>В общем, шторм улегся, гроза прошла мимо.<cite> Все живы и здоровы</cite></aside></blockquote>
 
-https://github.com/user-attachments/assets/85812706-fe6d-4945-9cc8-b929f6f13382
-
-<video src="https://github.com/user-attachments/assets/7ed16e8e-f605-4a0d-a912-ef99a4c8b6a1" />
-<video src="https://github.com/user-attachments/assets/9972d6df-6045-4701-aac2-969e32cd74f2" />
-
-
-
+<blockquote><aside>Если спросить: а нахрена это оформлено в длиннопост?<cite> То все просто: лишний раз напомнить про https://post.vakarian.website/</cite></aside></blockquote>
 
 
