@@ -4,8 +4,7 @@
 _И немного Благовещенска_
 
 
-<video src=""></video>
-<figure><video src="https://github.com/user-attachments/assets/ee9c65ce-7e07-4e36-b5cb-532a8c2eebfc"></video><figcaption>Red Sun In The Sky</figcaption></figure>
+
 
 ---------
 
