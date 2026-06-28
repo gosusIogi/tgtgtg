@@ -3,7 +3,9 @@
 ## Если точнее, город Хэйхэ
 _И немного Благовещенска_
 
-![](https://github.com/gosusIogi/pictstg/releases/download/nan/InShot_20260628.mp4 "Red Sun In The Sky 🇨🇳")
+![](https://github.com/user-attachments/assets/ee9c65ce-7e07-4e36-b5cb-532a8c2eebfc  "Red Sun In The Sky 🇨🇳")
+
+
 
 ---------
 
